@@ -41,3 +41,6 @@ It takes a lot of time and iterations to make the robot works, taking into accou
 
 See the attached video here:
 https://www.youtube.com/watch?v=4barIx9LY-s
+
+Do you want to see my cat playing with BB8 body? Here:
+https://www.youtube.com/watch?v=fXuM0vTAqi8
